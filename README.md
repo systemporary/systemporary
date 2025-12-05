@@ -6,7 +6,7 @@ Whispering is the best way to get ahold of me. ![](https://komarev.com/ghpvc/?us
 
 I block freely.
 
-here is a drawing lysander for whom it may concern! 
+here is a Lysander for whom it may concern! 
 
 
 <a href="https://ibb.co/4RNgMkx1"><img src="https://i.ibb.co/zVfHbdw6/Untitled.jpg" alt="Lysander Sander" border="0" /></a>
