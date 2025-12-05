@@ -1,16 +1,19 @@
-## Hi there 👋
 
-<!--
-**systemporary/systemporary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+sorry if i don't reply, i offtab a lot.
 
-Here are some ideas to get you started:
+whispering is the best way to get ahold of me. ![](https://komarev.com/ghpvc/?username=KROYFISH&color=86070e)
+***
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+retrospring gonna fuckin' die... made an atabook or whatever instead
+
+just real big on x-men and skyrim that's all you gotta know.
+
+no dni fuck around i block freely
+
+<img src="https://i.ibb.co/Lt9H2Vr/dvdslot.gif"/>
+
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/18jtTpM/V2-Trans-1-2.png" alt="V2-Trans-1-2" border="0"></a> 
+
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/P9H68m6/Skyrim-logo.png" alt="Skyrim-logo" border="0"></a>
+
+.
