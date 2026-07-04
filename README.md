@@ -7,4 +7,5 @@ Whispering is the best way to get ahold of me. ![](https://komarev.com/ghpvc/?us
 I block freely.
 
 
--- the top strawpage is for the anonymous asks and the Trashbocegi one is for my own art archive. Feel free to check out both!
+-- The top strawpage is for the anonymous asks and the Trashbocegi one is for my own art archive. 
+. Feel free to check out both!
