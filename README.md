@@ -10,8 +10,8 @@ I block freely.
     
      ㆍinterests: resident evil, dead by daylight, clinical trial, outlast trials, 8:11, 
      skyrim, deltarune, hotline miami, tsp, sally face, portal, half life, postal, ace attorney, castlevania, dmc, 
-     the arcana, overwatch, ultrakill, baldurs gate, marvel, breaking bad, iwtv, american horror story, helluva boss, smiling friends,
-     wwdits, beastars, gravity falls 
+     the arcana, overwatch, ultrakill, baldurs gate, marvel, breaking bad, iwtv, american horror story, helluva boss,
+     smiling friends, wwdits, beastars, gravity falls 
      
      ㆍdni: man i'm cool with anything. 
 
