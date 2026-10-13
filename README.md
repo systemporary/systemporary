@@ -6,7 +6,7 @@ Whispering is the best way to get ahold of me. ![](https://komarev.com/ghpvc/?us
 
 I block freely.
 
-    ABOUT ME ㆍAlparslan, or Alp for short. ㆍ 21 ㆍhe/him ㆍtimezone: gmt+3, IST
+    ABOUT ME ㆍAlparslan, or Alp for short. ㆍ 21 ㆍhe/him ㆍGMT+3 IST
     
      ㆍinterests: resident evil, dead by daylight, clinical trial, outlast trials, 8:11, 
      skyrim, deltarune, hotline miami, tsp, sally face, portal, half life, postal, ace attorney, castlevania, dmc, 
