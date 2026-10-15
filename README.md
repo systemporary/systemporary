@@ -1,7 +1,7 @@
 
 Sorry if I don't reply, I offtab a lot. I get on to draw in the background.
 
-Whispering is the best way to get ahold of me. ![](https://komarev.com/ghpvc/?username=KROYFISH&color=86070e)
+Whispering is the best way to get ahold of me.  ![](https://komarev.com/ghpvc/?username=KROYFISH&color=86070e)
 ***
 
 NEW : Make sure to check out my <p><a href="https://https://trashbocegi.neocities.org/">NEOCITIES!</a></p> <p>I've tried implementing a way where you can send me images anonymously, DIRECTLY from there. Would love for you guys to check it out and give me feedback on the drawing tool. </p>
