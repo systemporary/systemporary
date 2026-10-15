@@ -4,6 +4,8 @@ Sorry if I don't reply, I offtab a lot. I get on to draw in the background.
 Whispering is the best way to get ahold of me. ![](https://komarev.com/ghpvc/?username=KROYFISH&color=86070e)
 ***
 
+NEW : Make sure to check out my neocities! I've tried implementing a way where you can send me images anonymously, DIRECTLY from there. Would love for you guys to check it out and give me feedback on the drawing tool.
+
 I block freely.
 
     ABOUT ME ㆍAlparslan, or Alp for short. ㆍ 21 ㆍhe/him ㆍGMT+3 IST
